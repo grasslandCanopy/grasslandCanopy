@@ -4,7 +4,7 @@
 </p>
 <p align="center">
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/886c2fe0-ezgif.com-rotate.gif" alt="left electricity">
-  I go by Bambi, you can call me Matthew too. I don't really care.
+  I go by Bambi. you can call me Matthew too, I don't really care, but I don't prefer it.
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/886c2fe0.gif" alt="right electricity">
 </p>
 <p align="center">
