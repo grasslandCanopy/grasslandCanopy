@@ -29,7 +29,7 @@
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/dad65ff9.gif" alt="black swirl"> please dni if you ship Bampunged (especially this one), Davepunged, or Mukave
 </p>
 <p align=center>
-  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/dad65ff9.gif" alt="black swirl"> In my free time, I really like to listen to and make music or draw.
+  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/dad65ff9.gif" alt="black swirl"> In my free time, I listen to music or watch Youtube Documentaries.
 </p>
 <p align="center">
   .
