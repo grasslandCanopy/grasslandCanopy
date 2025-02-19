@@ -23,7 +23,7 @@
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/tumblr_dd12243ecc9b525df9d5b74b771a8077_ec645e6e_540.gif" alt="spinning chain link">
 </p>
 <p align=center>
-  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/dad65ff9.gif" alt="black swirl"> In my free time, I listen to music or watch Youtube Documentaries.
+  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/dad65ff9.gif" alt="black swirl"> In my free time, I listen to music or watch Youtube Documentaries. I make music sometimes too.
 </p>
 <p align="center">
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/dad65ff9.gif" alt="black swirl"> I like MADCOM and rock/metal music. The Simpsons and Object Shows are cool too.
