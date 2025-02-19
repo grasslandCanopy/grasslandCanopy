@@ -36,8 +36,11 @@
 </p>
 <p align="center">
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/886c2fe0-ezgif.com-rotate.gif" alt="left electricity">
-  I'd prefer not talking to people I don't know but if you want to I don't care. I might be dry though. (hey dave sorry for stealing this layout from you ily)
+  I'd prefer not talking to people I don't know but if you want to I don't care. I might be dry though.
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/886c2fe0.gif" alt="right electricity">
+</p>
+<p align="center">
+(hey dave sorry for stealing this layout from you ily)
 </p>
 <p align="center">
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/download-ezgif.com-resize.gif"/>
