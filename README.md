@@ -20,7 +20,7 @@
    <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/3e511865.gif" alt="angry emoticons"> If you need me, talk to who's fronting about it. There's a good chance I'm not there.
 </p>
 <p align="center">
-  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/tumblr_dd12243ecc9b525df9d5b74b771a8077_ec645e6e_540.gif" alt="spinning chain link">
+  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/tumblr_5656e93e5ec647a22631b94e4f56425e_71eb00a1_75.webp" alt="red glitter star">
 </p>
 <p align=center>
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/dad65ff9.gif" alt="black swirl"> In my free time, I listen to music or watch Youtube Documentaries. I make music sometimes too.
